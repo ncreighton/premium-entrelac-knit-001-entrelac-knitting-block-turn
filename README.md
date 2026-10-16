@@ -1,0 +1,2 @@
+# premium-entrelac-knit-001-entrelac-knitting-block-turn
+Tired of losing your place mid-block turn? This Notion workshop turns entrelac chaos into a clear, step-by-step craft journey.  Entrelac knitting's unique block-turn technique often trips up even experienced knitters. This template provides a structured workspace to guide each turn, track row counts, and store technique notes—so you never drop a st
